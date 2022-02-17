@@ -3,7 +3,7 @@
 
 译者：RENA 
 
-编者：NAMELESS-284
+编者：NAMELESS-284 / needhourger
 
 
 # 第一章 前言
